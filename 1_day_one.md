@@ -17,7 +17,7 @@ As Dante wrote in his Divine Comedy, “beneath the blanket is no way to fame.�
 **We have things to do. It’s time to get up and do them.**
 
 ## Audio comment
-[Ryan Holiday's commentary on today's challenge](https://el2.convertkit-mail.com/c/qdu3dd567t7h0v3n6/g0snh5hk3kzkx/aHR0cHM6Ly9zb3VuZGNsb3VkLmNvbS9zdG9pY2NoYWxsZW5nZS9kYXktMS9zLVREWXE2)
+[Ryan Holiday's commentary on today's challenge](https://soundcloud.com/stoicchallenge/day-1/s-TDYq6)
 
 ## Long version
 
