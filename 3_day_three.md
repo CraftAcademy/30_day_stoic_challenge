@@ -13,7 +13,7 @@ Gratitude does not begin and end with personal appreciation for having a positiv
 
 **This is a deceptively simple challenge. But make no mistake, it can change your life in incredible and complex ways. Until you do it, and sit with it, you have no idea how powerful a shift in mindset can be. You don’t know the butterfly effect that can occur when your relationship with someone close to you changes, because your attitude changed. If the fact that you are alive today, and here now, is a bonafide miracle; then this is a legitimate superpower.**
 
-## Audi comment
+## Audio comment
 [Ryan Holiday's commentary on today's challenge](https://soundcloud.com/stoicchallenge/day-3-write-down-5-things-you-are-thankful-for/s-wApVd)
 
 ## Long version
